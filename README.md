@@ -8,10 +8,10 @@
 
 
 
-<img src="images/mygif.gif" width="300">
+<img src="images/[3827ae1458.mp4](images%2F3827ae1458.mp4)" width="300">
 
 
-![Описание GIF](images/mygif.gif)
+![Описание GIF](images/[3827ae1458.mp4](images%2F3827ae1458.mp4))
 
 
 
