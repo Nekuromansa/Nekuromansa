@@ -8,12 +8,12 @@
 
 
 
-<img src="https://t.me/gifki_anime/21990" width="300">
+<img src="https://tenor.com/ru/view/shigure-ui-aizen-gif-16656504944117855620" width="300">
 
 [3827ae1458.mp4](..%2FDownloads%2F3827ae1458.mp4)
 
 
-
+<div class="tenor-gif-embed" data-postid="16656504944117855620" data-share-method="host" data-aspect-ratio="0.751004" data-width="100%"><a href="https://tenor.com/view/shigure-ui-aizen-gif-16656504944117855620">Shigure Ui Aizen GIF</a>from <a href="https://tenor.com/search/shigure+ui+aizen-gifs">Shigure Ui Aizen GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
 
 
 
